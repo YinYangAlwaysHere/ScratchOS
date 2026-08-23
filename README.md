@@ -13,4 +13,4 @@ Thank you for using and have a nice day
 
 this project was completely coded in penguinMod.
 
-oh and, Please download the zip files in releases, because it was recommended, it'll make updates.
+oh and, Please download the zip files in releases, because it was recommended, it'll make updates, and highly recommended for a pmp file (Penguinmod File) to download, so you can mod and play at anytime and anywhere.
